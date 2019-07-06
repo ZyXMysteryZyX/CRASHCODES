@@ -7,9 +7,9 @@ TESTED BY UNDERCODE TESTING COMPANIE (U.T.C)
 
 CRASH CODE:
 
-1) crash code number (1)  SEND LIKE A SIMPLE TEXT CRASH (its chineese virus)
+1) crash code harm its chineese one SEND LIKE A SIMPLE TEXT CRASH 
 
-2)VIRUS CRASH (2)
+2)VIRUS CRASH kaleflag virus
 
 its a .vcf send to ppl via file exploret
 
