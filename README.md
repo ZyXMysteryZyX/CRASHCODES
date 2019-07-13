@@ -17,6 +17,7 @@ its a .vcf send to ppl via file exploret
 
 4) CRASH FOR IOS TESTED BY UNDERCODE
 
+
 # TO JOIN OUR WHATSAPP GROUPES FOR FREE KNOWLEDGE MAIL US AT :
 
 
