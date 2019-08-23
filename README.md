@@ -32,10 +32,12 @@ SEE THIS YOUTUBE:
 (like us)
 https://www.facebook.com/undercodetesting.companie
 
-# WEBSITE:
+# INSTAGRAM:
+FOLLOW US:
+instagram.com/UndercodeTestingCompany
 
+# Bitcoint Donation:
 
-www.undertesting.code.blog
-
+1FBPoRY8xcD373wA5MuiuMy3pwgqeFsnbk
 
 ------------UNDERCODE TESTING ------------------------------
